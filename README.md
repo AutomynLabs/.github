@@ -1,3 +1,6 @@
+![ChatGPT Image Jun 3, 2025, 07_21_31 AM (2)](https://github.com/user-attachments/assets/42609850-11fe-4e94-91d9-ef25f8809af0)
+
+
 # AutomynLabs
 
 🚀 Automating intelligence — one workflow at a time.
